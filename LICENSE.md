@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://VoidWainwrightFire.github.io/marvel-rivals-mod-zh25/) |
  |---------------------|----------------------:|
 
 
